@@ -24,4 +24,7 @@ Você se lembra de como o Pó da Vida deu vida aos biscoitos?
 Mas não foi apenas os biscoitos que a vida foi concedida. 
 
 Da escuridão nasceram os horrendos Monstros Bolo.
-Eles marcharam pela terra, semeando escuridão e medo.
+Eles marcharam pela terra, semeando escuridão e medo. Eles desintegraram os corpos frágeis dos biscoitos, deixando um rastro de farinha escura e queimada. E nenhum biscoito foi capaz de se opor a eles.
+
+Na fatídica noite da lua crescente, quando uma sombra levitã pairava sobre o Castelo de Baunilha...
+Um por um, os grandes heróis caíram.
