@@ -16,3 +16,12 @@ Um prenúncio de escuridão apareceu e deixou que sombras e maldade infestassem 
 E mais uma vez, o mundo explodiu em caos.
 
 Mas os cinco biscoitos heróis, guardiões da paz, ressucitaram. O  crepúsculo cai e a guera pelo destino dos biscoitos começou. 
+
+*A GUERRA DA FARINHA NEGRA*
+
+A faísca da guerra logo surgiu no horizonte. 
+Você se lembra de como o Pó da Vida deu vida aos biscoitos?
+Mas não foi apenas os biscoitos que a vida foi concedida. 
+
+Da escuridão nasceram os horrendos Monstros Bolo.
+Eles marcharam pela terra, semeando escuridão e medo.
