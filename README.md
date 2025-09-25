@@ -15,7 +15,7 @@ Um prenúncio de escuridão apareceu e deixou que sombras e maldade infestassem 
 
 E mais uma vez, o mundo explodiu em caos.
 
-Mas os cinco biscoitos heróis, guardiões da paz, ressucitaram. O  crepúsculo cai e a guera pelo destino dos biscoitos começou. 
+Mas os cinco biscoitos heróis, guardiões da paz, ressucitaram. O  crepúsculo cai e a guerra pelo destino dos biscoitos começou. 
 
 
 
