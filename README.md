@@ -36,9 +36,10 @@ Um por um, os grandes heróis caíram. E quando o arauto sombrio apareceu, apena
 
 
 
-*Pós-guerra*
+*PÓS-GUERRA*
+Após a grande guerra, os últimos 3 anciãos se separaram, com o sumiço de Pure Vanilla e White Lily os reinos se separaram e cada um egui seu caminho. Agora, a ilha de EarthBread entrou em uma nova era de paz.
 
-*As cinco Bestas*
+*AS CINCO BESTAS*
 
 Em um passado distante, quando o caos do ferro e da chama ainda reinava...
 Cinco biscoitos foram feitos pelas Bruxas, seres radiantes, agraciados com sabedoria e poder incomparáveis. 
@@ -49,4 +50,26 @@ Uma vez prometidos salvadores, os cinco tornaram-se apóstolos distorcidos do ma
 
 As Bruxas não suportaram assistir à calamidade que se abateu sobre a preciosa terra de sua criação. Elas puniram os Cinco selando-os no remoto continente do Beast-Yeast.
 
+
 E espalhados pelo mundo vestígios de seu poder, ainda intocados pelas sombras, as Soul Jam. Na esperança de que um novo grupo de heróis aprenda a resistir às tentações de tal força e a utilizá-la melhor.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
